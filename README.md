@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Mie >v<
+- 👀 I’m interested in drawing arts or hanging out with friends 
+- 🌱 I’m currently do drawing work for hire
+- 😄 Pronouns: she / her ! 😘
+- ⚡ Fun fact: just spending time for myself on pony town or stuffs..?
